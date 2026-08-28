@@ -1,3 +1,5 @@
+![bizon](https://raw.githubusercontent.com/SekoMirson/promo.bizon.az/main/bizon.png)
+
 # 🔥 BIZON PROMO SPAMMER 🔥
 
 **Azərbaycan dilində**
